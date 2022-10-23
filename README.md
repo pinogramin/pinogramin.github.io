@@ -1,1 +1,1 @@
-# [pinswallpaper.github.io](https://pinswallpaper.github.io)
+# [pinogramin.github.io](https://pinogramin.github.io)
